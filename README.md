@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fr0zen3ye
+- 👀 I’m interested in UI/UX, Webdev and AR
+- 🌱 I’m currently learning CGI & Webdevelopement
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me: coming in the future
